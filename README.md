@@ -1,16 +1,14 @@
-## Hi there 👋
+## Bem vindos ao meu parfil🎶
 
-<!--
-**HeloFurlan/HeloFurlan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome Heloisy G. Furlan 
 
-Here are some ideas to get you started:
+- Estou estudando na alura
+- Estou seguindo o caminho da vida
+- Aprendendo a ser forte e a permanercer
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  você não pode entrar em contato comigo😊
+
+
+
+
+![](  https://t.ctcdn.com.br/nHi_A7VYxXSqvBPmt7DMTCqIdtA=/768x432/smart/i6161.jpeg)
