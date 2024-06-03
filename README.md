@@ -1,4 +1,4 @@
-## Bem vindos ao meu parfil🎶
+## Bem vindos ao meu perfil🎶
 
 Meu nome Heloisy G. Furlan 
 
